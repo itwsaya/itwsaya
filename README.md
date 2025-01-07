@@ -1,1 +1,1 @@
-README
+sovereignty, legendary deeds, inner awakening, sacred devotion
